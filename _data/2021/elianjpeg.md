@@ -1,4 +1,4 @@
-# :putnam: BOO!
+# :ghost: BOO!
 ***
 # about_me
 > Hi I'm Elian, I like to to edit videos.
